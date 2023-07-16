@@ -4,10 +4,10 @@ Makes 12
 
 ## Ingredients
 
-- 140g flour
-- 220g butter
+- 400g icing sugar
+- 225g butter
+- 200g flour
 - 200g chocolate 
-- 250g icing sugar
 - 4 eggs
 - 1 tsp salt
 - 1/2 tsp vanilla
